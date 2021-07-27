@@ -1,4 +1,4 @@
-# farkinga
+# github profile
 
 👋 Hi, I’m /u/farkinga
 
